@@ -1,0 +1,2 @@
+# Bu-sadece-bir-oyun-
+.
